@@ -32,4 +32,5 @@ PASTA PARA VÍDEO E PRINT DO BUSINESS MODEL CANVA:
 
 FONTES: 
 https://mundoeducacao.uol.com.br/biologia/mudancas-climaticas.htm
+
 https://www.natgeo.pt/meio-ambiente/antes-e-depois-veja-o-impacto-dramatico-que-as-alteracoes-climaticas-tem-no-artico
